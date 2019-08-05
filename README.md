@@ -6,4 +6,4 @@ This is where you'll find all the info and files and whatnot for the cast and cr
 
 ## Notes and Lists
 
-* [Recommended Media](media list.md)
+* [Recommended Media](medialist.md)
