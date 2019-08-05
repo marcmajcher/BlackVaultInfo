@@ -2,7 +2,7 @@
 
 This is not *homework* per se, but immersing yourself in the source material will be very beneficial to gaining a deep understanding of the themes, tone, and structures we're going for.
 
-If you had to do as little as possible, I'd say read the first three Lovecraft stories on the list (plus whatever shorter ones you like—some are, like, five-minute reads), The Black Stone, King in Yellow, Stealing Cthulhu (I can get you a pdf), and as much of the HP Lovecraft Literary Podcast as you can manage. 
+If you *had* to do as little as possible, I'd say read the first three Lovecraft stories on the list (plus whatever shorter ones you like—some are, like, five-minute reads), The Black Stone, King in Yellow, Stealing Cthulhu (I can get you a pdf), and as much of the HP Lovecraft Literary Podcast as you can manage. 
 
 ## Lovecraft stories
 

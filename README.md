@@ -1,5 +1,7 @@
 ## Rehearsal Notes
 
+* [Black Vault Rehearsal 8/4/2019](notes/2019_08_04.md)
+
 ## Notes and Lists
 
 * [Recommended Media](medialist.md)
