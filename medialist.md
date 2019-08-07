@@ -60,4 +60,5 @@ Tales From The Black Vault: http://www.blackvault.net/
 * Dagon
 * In the Mouth of Madness
 * The Mist
+* Annihilation
 * John Carpenter's The Thing
