@@ -52,6 +52,8 @@ https://hppodcraft.com/
 
 The main podcast I'm always going to recommend is the H.P. Lovecraft Literary Podcast (at hppodcraft.com *scream*). They go through all of his stories in chronological order, summarizing them and talking about all the stuff about them. Then they go into all of the authors around him, and all of the inspirations and notable fiction he talks about in his writings. It's incredibly informative and entertaining, and I can't recommend their readings of his stories enough to get a great feel for the tone and flavor of his writing when spoken aloud. (Andrew Lehman and Rachel Ford Lackey are treasures.)
 
+Tales From The Black Vault: http://www.blackvault.net/
+
 ## Movies / TV
 
 * The HP Lovecraft Historical Society's movies: Call of Cthulhu, Whisperer in Darkness, etc.
