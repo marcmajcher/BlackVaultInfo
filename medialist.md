@@ -58,5 +58,6 @@ Tales From The Black Vault: http://www.blackvault.net/
 
 * The HP Lovecraft Historical Society's movies: Call of Cthulhu, Whisperer in Darkness, etc.
 * Dagon
+* In the Mouth of Madness
 * The Mist
 * John Carpenter's The Thing
