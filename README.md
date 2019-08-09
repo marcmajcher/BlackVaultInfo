@@ -6,4 +6,4 @@
 ## Notes and Lists
 
 * [Recommended Media](medialist.md)
-* [Pinterest board for costumes and whatnot](https://pin.it/cqz5kqjkbpq6tp)
+* [Pinterest board for costumes and whatnot](https://pin.it/cqz5kqjkbpq6tp) 
