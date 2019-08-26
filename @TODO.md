@@ -9,3 +9,10 @@
 * Anonymous feedback form [ √ ]
 * Half-time feedback form [ √ ]
 * Boundaries and limitations form [ √ ]
+
+opening shortcuts
+come over here if - other intimacy exercises
+practice editing - tech skills?
+story beat timeline
+eliminate "uh"
+letting lines land - reactions
